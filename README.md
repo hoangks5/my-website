@@ -1,2 +1,1 @@
-# my-website
-itsoeazy.com
+https://itsoeazy.com/
