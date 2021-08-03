@@ -1,1 +1,1 @@
-https://itsoeazy.com/
+https://itsoeazy.xyz/
